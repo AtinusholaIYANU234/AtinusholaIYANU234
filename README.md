@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Atinushola
 - 👀 I’m interested in Analysing Data
-- 🌱 I’m currently learning Data Analysis @ The Incubator Hub with Ladies in Tech Africa 
+- 🌱 Certificate of Attendance in Data Analysis @ The Incubator Hub with Ladies in Tech Africa 
 - 😄 Pronouns: She
 - ⚡ Fun fact: Honey Never Spoils
 
